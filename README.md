@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @lnkduyy
+- 👀 I’m interested in AI and Deep Learning
+- 🌱 🌱 I’m currently learning advanced machine learning algorithms and their applications.
+- 💞️ I’m looking to collaborate on innovative AI projects, particularly those involving neural networks and computer vision.
+- 📫 How to reach me: facebook.com/duy.moji/ 
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I have a decade of experience in piano performance.
